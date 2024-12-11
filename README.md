@@ -1,0 +1,1 @@
+# Minimal-AI-Tool-for-Business-Research
